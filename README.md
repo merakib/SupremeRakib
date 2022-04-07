@@ -16,4 +16,8 @@
 
   Twitter : https://twitter.com/_supremerakib
 
+  Instagram : https://www.instagram.com/supreme_rakib/
+  
+  Pinterest : https://www.pinterest.com/HMTheBoy154
+  
   SupremeGamers forum : https://supreme-gamers.com/m/rzfrakib.44390/
