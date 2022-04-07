@@ -8,12 +8,12 @@
 
 📫 How to reach me:
 
-    Discord : _SupremeRakib#7358
+  Discord : _SupremeRakib#7358
 
-    Email : md3021822@gmail.com
+  Email : md3021822@gmail.com
 
-    Facebook : https://www.facebook.com/RZFsupremerakib/
+  Facebook : https://www.facebook.com/RZFsupremerakib/
 
-    Twitter : https://twitter.com/_supremerakib
+  Twitter : https://twitter.com/_supremerakib
 
-    SupremeGamers forum : https://supreme-gamers.com/m/rzfrakib.44390/
+  SupremeGamers forum : https://supreme-gamers.com/m/rzfrakib.44390/
