@@ -8,7 +8,7 @@
 
 📫 How to reach me:
 
-  Discord : _SupremeRakib#7358
+  Discord : @_SupremeRakib#7358
 
   Email : md3021822@gmail.com
 
